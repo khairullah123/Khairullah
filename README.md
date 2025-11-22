@@ -1,1 +1,1 @@
-# Khairullah
+# Translation
